@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Tinosaurus, but people tend to call me with just Tino aswell
+- Theres not that much stuff here yet, because im getting into doing stuff, finding stuff im intrested in, etc.
